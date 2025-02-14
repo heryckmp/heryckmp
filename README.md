@@ -1,4 +1,4 @@
-• 👋 Hi, I'm Eric
+• 👋 Hi, I'm Erick
 
 • 👀 I'm interested in coding, video games, and running (cross country and code)
 
